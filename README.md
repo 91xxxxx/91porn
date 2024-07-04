@@ -2,12 +2,12 @@
 
 91porn 官方网址，永久免费，真实有效，谨防假冒
 
-91porn 最新地址（免翻墙，实时吃瓜）：[https://dnjtwtgi48217.cloudfront.net](https://dnjtwtgi48217.cloudfront.net )
+91porn 最新地址（免翻墙，实时看片）：[https://dnjtwtgi48217.cloudfront.net](https://dnjtwtgi48217.cloudfront.net )
 
-91porn 最新地址·备用（免翻墙，实时吃瓜）： [https://4e3.iseefswvp.com](https://4e3.iseefswvp.com)
+91porn 最新地址·备用（免翻墙，实时看片）： [https://d3ekwyly6r9iur.cloudfront.net](https://d3ekwyly6r9iur.cloudfront.net)
 
 
-91porn 官方邮箱（发”91porn“获取 最新地址）请收藏：hjsqil1@gmail.com
+91porn 官方邮箱（发”我要看片“获取 最新地址）请收藏：sqhub3678@gmail.com
 
 91porn 获取最新地址（备份）: https://github.com/91xxxxx
 
