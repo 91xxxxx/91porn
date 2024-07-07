@@ -14,7 +14,7 @@
 
 91porn 官方土豆：[https://ptd6.app/p91mv](https://ptd6.app/p91mv)
 
-91porn 获取最新地址（备份）: https://github.com/91xxxxx/dizhi
+91porn 获取最新地址（备份）: https://github.com/91xxxxx
 
 91porn 永久地址（永久有效，谨防迷路，需翻墙）：[https://91porna.com](https://91porna.com)
 
