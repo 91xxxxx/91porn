@@ -14,7 +14,7 @@
 
 91porn 官方TG：[https://t.me/porn91fun](https://t.me/porn91fun)
 
-91porn 官方土豆：[https://ptd6.app/p91mv](https://ptd6.app/p91mv)
+91porn 官方土豆：[https://dljpt3.org/p91mv](https://dljpt3.org/p91mv)
 
 91porn 获取最新地址（备份）: https://github.com/91xxxxx
 
